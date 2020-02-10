@@ -1,0 +1,2 @@
+# TRCagriiK
+DİSCORD BOT
